@@ -7,4 +7,5 @@
 </div>
   
 ##
-![cv_page-0001](https://user-images.githubusercontent.com/109605728/179775277-533ad238-3935-454e-87ea-aa99e1a049b1.jpg)
+
+![BrisaMoreyra](https://user-images.githubusercontent.com/109605728/183513261-fde0776b-1193-45fc-ac8a-6bc4ac016d35.jpg)
